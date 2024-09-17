@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on small coding projects as I am still a beginner for practicing purposes
 - 📫 How to reach me at nicolelondt13@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I love dried fruit
+- ⚡ Fun fact: I am a mother/wife and teacher
 
 <!---
 NicoleH13/NicoleH13 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
